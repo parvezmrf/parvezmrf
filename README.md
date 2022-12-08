@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **ReactJS, NodeJS**
 
-- 📫 How to reach me **parvezmrf@gmail.com**
+- 📫 Reach me anytime **parvezmrf@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1VxL0IW5PfrrIXAhGwz8Gn5twLQx-wP5F/view](https://drive.google.com/file/d/1VxL0IW5PfrrIXAhGwz8Gn5twLQx-wP5F/view)
 
